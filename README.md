@@ -1,0 +1,1 @@
+# novelbin-shosetsu1
